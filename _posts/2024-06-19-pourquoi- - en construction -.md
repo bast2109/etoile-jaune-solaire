@@ -1,6 +1,8 @@
 ---
-title: "Pourquoi?"
+title: "Pourquoi? ( En construction )"
 ---
+( En construction )
+
 Pourquoi?
 Parce que je réalise que depuis que je suis né dans ce corps, on me propose de jouer et le premier rôle qu'on m'a proposé de jouer est celui de "Bastien".
 J'aimerais vivre une expérience plus épanouissante que celle que j'ai vécu jusqu'alors et je nourris la croyance que c'est à travers le jeu que je peux réellement découvrir qui je suis et ce dont je suis capable de réaliser.
