@@ -1,17 +1,16 @@
 ---
-title: Activités
+title: "Activités"
 order: 1
+in_menu: true
 ---
+Pourquoi?
+Parce que je réalise que depuis que je suis né dans ce corps, on me propose de jouer et le premier rôle qu'on m'a proposé de jouer est celui de "Bastien".
+J'aimerais vivre une expérience plus épanouissante que celle que j'ai vécu jusqu'alors et je nourris la croyance que c'est à travers le jeu que je peux réellement découvrir qui je suis et ce dont je suis capable de réaliser.
 
-L’association cherche à œuvrer en collaboration avec des organismes publics, des organisations privées et des individus.
+Je parle de "jeu" car je crois que les Mayas nous ont laissé la possibilité de jouer avec ce que représente l'identité et la capacité de s'identifier à des rôles et d'y jouer, comme Papa par exemple, un autre rôle que je joue au travers de cette existence humaine.
 
-## Nos activités
 
-A titre indicatif, les activités commerciales possibles sont (liste non-exhaustive) :
 
-- Accompagnement à la **création de structures** juridiques
-- Conception, développement et accompagnement de **produits innovants**
-- **Formation** d’enfants et d’adultes, par exemple dans les domaines de la communication non-violente, méthodologie lean et approche agile, les relations aux animaux, l’alimentation, la gestion de budget familial ou d’entreprise…
-- Projets à **impact environnemental positif**
-- Projets à **impact social positif**
-- Vente d’objets ou de denrées alimentaires, avec **impact humain ou environnemental positif**
+
+Ce que j'imagine à travers ce jeu c'est que mon corps est un outils pour la Création, autrement dit "Dieu".
+Et ce que je souhaite c'est avoir conscience que cette Création manifeste l'Amour qu'il soit le plus possible de ressentir et d'exprimer sur Terre, à l'intérieur de ce corps que l'on a nommé Bastien. 
