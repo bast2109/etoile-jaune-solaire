@@ -15,7 +15,7 @@ C'est la signature galactique de l'être que je suis selon la prophétie des Anc
 Voici mon But : Jouer tel un Acteur qui reçoit un nouveau rôle à jouer, celui de l’étoile jaune solaire.
 
 Et je souhaite que naisse l'envie en vous de jouer avec moi.
-Envoyez moi un signe si tel est le cas, s'il vous plaît.
+Envoyez moi un signe si tel est le cas, si cela vous plaît.
 
 
 Je ne sais pas quand le jeu se terminera.
