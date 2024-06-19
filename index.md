@@ -3,7 +3,7 @@ title: "Accueil"
 order: 0
 in_menu: true
 ---
-In Lak'ech : Je suis toi, et Tu es moi.
+Coucou !
 
 ![Sourire d'un bébé chat]({% link images/Sourire.jpeg %})
 
