@@ -1,4 +1,0 @@
----
-title: "Croyances"
----
-( En construction )
