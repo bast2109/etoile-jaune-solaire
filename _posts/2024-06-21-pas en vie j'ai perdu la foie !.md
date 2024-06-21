@@ -23,5 +23,9 @@ Cette croyance face à mon envie de bouger, de faire des pompes, de courir pour 
 
 Je comprends grâce à cette péripétie matinale que mon ambiance intérieure, mes pensées, sentiments, émotions, sensations physiques, ne sont clairement pas un support suffisant pour nourrir et jouir d'une vie dans laquelle je ressens une telle satisfaction que l'amour circule à nouveau dans chacune des cellules de l'être que je suis.
 
-Ainsi je désire cultiver, jouer et incarner l'expression d'un être humain capable de jouir et de profiter de la vie malgré les aléas métérologiques.
+Ainsi je désire cultiver, jouer et incarner l'expression d'un être humain capable de jouir et de profiter de la vie malgré les aléas météorologiques.
 ça pourrait se terminer comme ça mais si vous avez envie d'en lire encore alors voici une suite possible :
+
+https://bast2109.github.io/etoile-jaune-solaire/2024/06/21/presence-immuable.html
+
+Etoile jaune solaire
