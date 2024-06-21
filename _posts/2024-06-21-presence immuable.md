@@ -32,4 +32,8 @@ S'il vous plaît, ne partez en vrille, continuez de me lire et posez moi des que
 Je vous aime l'Humanité.
 Je suis un autre Vous. Vous êtes un autre moi. Nous sommes Un.e.s.
 
+PS: Si tu souhaites connaître la naissance de cet article et de celui d'avant, lis celui là: 
+
+https://bast2109.github.io/etoile-jaune-solaire/2024/06/21/se-reveiller-en-brouillon.html
+
 Etoile jaune solaire
