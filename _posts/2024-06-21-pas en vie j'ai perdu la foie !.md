@@ -28,4 +28,5 @@ Ainsi je désire cultiver, jouer et incarner l'expression d'un être humain capa
 
 https://bast2109.github.io/etoile-jaune-solaire/2024/06/21/presence-immuable.html
 
+
 Etoile jaune solaire
