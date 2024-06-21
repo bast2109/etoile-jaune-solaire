@@ -20,3 +20,8 @@ J'ai alors vu que je cultivais une croyance qui entrait en conflit avec tout ce 
 Je nourrissais la croyance que lorsque "je suis malade", rien ne changera, seul le temps, seul le fait que mon corps fasse le boulot et que la maladie passe fera naître à nouveau une disponibilité pour que je bouge mon cul, que je m'active.
 
 Cette croyance face à mon envie de bouger, de faire des pompes, de courir pour entraîner mon corps à la pratique du cirque et de mon envie d'intégrer l'école de cirque de Montréal, un de mes rêves; contribuait clairement à nourrir la croyance que je n'y arriverai jamais et faisait considérablement baisser la jauge de l'estime de moi et de la foi que j'ai en mes propres capacités pour à nouveau être capable de vivre dans un corps d'acrobate.
+
+Je comprends grâce à cette péripétie matinale que mon ambiance intérieure, mes pensées, sentiments, émotions, sensations physiques, ne sont clairement pas un support suffisant pour nourrir et jouir d'une vie dans laquelle je ressens une telle satisfaction que l'amour circule à nouveau dans chacune des cellules de l'être que je suis.
+
+Ainsi je désire cultiver, jouer et incarner l'expression d'un être humain capable de jouir et de profiter de la vie malgré les aléas métérologiques.
+ça pourrait se terminer comme ça mais si vous avez envie d'en lire encore alors voici une suite possible :
