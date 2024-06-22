@@ -1,5 +1,5 @@
 ---
-title: "Le Jeu auquel je joue."
+title: "Le Jeu auquel je joue"
 ---
 Je nourris la croyance que l'Existence, notre vie de petit humain sur terre dans ce vaste univers, a du sens pour "ce" qui regarde le spectacle de la vie prendre forme puis disparaître.
 
